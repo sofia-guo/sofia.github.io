@@ -5,10 +5,6 @@ protective services. In my spare time, I enjoy biking,
 hiking, watching star trek, and taking my cat Pebble for 
 walks!
 
-![Cat 
-in 
-the 
-original 
-series](/Users/sofia/Downloads/giphy.gif)
+![Cats in star trek?](startrekcats.jpeg)
 
-
+![Spock n cat](giphy.gif)
