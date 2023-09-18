@@ -9,6 +9,6 @@ walks!
 in 
 the 
 original 
-series](https://giphy.com/gifs/cat-vintage-3o7bu93Nv83bIUao2Q)
+series](/Users/sofia/Downloads/giphy.gif)
 
 
